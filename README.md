@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nimoCreator
+- 👀 I’m interested in CGI, graphic design and web developing.
+- 🌱 I’m currently studying at Computer Science Silatian University of Techonology, I'm going to gratuade my Engeeneer title in early 2025.
+- 💞️ I’m moving to Belgium soon.
+- 📫 Message me on Discord nimo#4701 if you ware interested in commisioning me ^^
